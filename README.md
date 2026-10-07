@@ -1,16 +1,24 @@
-## Hi there 👋
+## 
+⁺✦.⠀ 𝓦ᵢₛₜₑᵣᵢₐ, aroace/queer⠀  ⌒•˚ ❤︎.
+                  „  тнєу   ノ⠀тнєм .*
+       ︵  ι мσѕтℓу кησωη αѕ ℓσмƒιєѕgρт/ℓσмму∂у .ᐟ <3
 
-<!--
-**YourHallucination/YourHallucination** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+𝘐 𝘩𝘢𝘷𝘦 𝘣𝘪𝘱𝘰𝘭𝘢𝘳 𝘢𝘯𝘥 𝘉𝘗𝘋.
+ৎ୭　𝓢ign my ata/straw!
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+₍ᐢ._.ᐢ₎♡  　　C,W/M,V,Y𓈒
+
+⏜︵⊹︵⏜︵୨୧︵⏜︵⊹︵⏜
+        Ⴆσυɳԃαɾιҽʂ
+⏝︶⊹︶⏝︶୨୧︶⏝︶⊹︶⏝
+
+
+ ➣ 𝘐 𝘢𝘤𝘤𝘦𝘱𝘵 𝘊𝘹𝘏 𝘮𝘰𝘴𝘵 𝘰𝘧 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦 𝘴𝘰 𝘥𝘰𝘯'𝘵 𝘣𝘦 𝘴𝘩𝘺 
+ ➣ 𝘨𝘪𝘷𝘪𝘯𝘨 𝘮𝘦 𝘯𝘪𝘤𝘬𝘯𝘢𝘮𝘦𝘴 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺(𝘦𝘹𝘤𝘦𝘱𝘵 𝘧𝘰𝘳 𝘦𝘯𝘥𝘦𝘢𝘳𝘮𝘦𝘯𝘵 𝘯𝘪𝘤𝘬𝘯𝘢𝘮𝘦/𝘱𝘦𝘵 𝘯𝘢𝘮𝘦 𝘶𝘯𝘭𝘦𝘴𝘴 𝘮𝘺 𝘱𝘢𝘳𝘵𝘯𝘦𝘳.)
+ ➣ 𝘶𝘴𝘪𝘯𝘨 𝘵𝘦𝘹𝘵 𝘪𝘯𝘥𝘪𝘤𝘢𝘵𝘰𝘳 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺 (𝘦𝘹:/𝘫, /𝘩𝘫, /𝘱, /𝘯𝘴𝘳𝘴)
+ ➣ 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰 𝘕𝘖𝘛 𝘵𝘳𝘪𝘨𝘨𝘦𝘳 𝘮𝘺 𝘋𝘗𝘋 𝘢𝘯𝘥 BPD
+ ➣ 𝘥𝘰 𝘯𝘰𝘵 𝘴𝘩𝘪𝘱 𝘮𝘦 𝘦𝘷𝘦𝘳. 𝘐'𝘮 𝘶𝘯𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦.
+ ➣ 𝘥𝘰𝘯'𝘵 𝘦𝘷𝘦𝘳 𝘥𝘳𝘢𝘨 𝘕𝘚𝘍𝘞 𝘴𝘵𝘶𝘧𝘧 𝘢𝘵 𝘮𝘦 𝘪𝘧 𝘸𝘦 𝘫𝘶𝘴𝘵 𝘮𝘦𝘵. 
+ 
